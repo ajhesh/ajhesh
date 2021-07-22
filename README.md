@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ajhesh
+- 👀 I’m interested in doing coding from 2021 with my partners.
+- 💢 I’m currently learning to programming and wanna make some thing extra in the world❤ 
