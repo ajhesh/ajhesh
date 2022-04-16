@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ajhesh
-- 👀 I’m interested in doing coding with my partners.
+- 👀 <>/
 - 💢 I’m currently learning to programming and wanna make some thing extra in the world❤ 
