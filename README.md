@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @ajhesh
-- 👀 <>/
-- 💢 I’m currently learning to programming and wanna make some thing extra in the world❤ 
+
